@@ -1,3 +1,3 @@
 # about me
 
-Still a rat
+still a little rat that learning to code and stuff i guess
