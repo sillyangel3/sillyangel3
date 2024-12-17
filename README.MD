@@ -6,3 +6,5 @@ still a little rat that learning to code and stuff i guess
 
 [Sillynano3_](https://scratch.mit.edu/users/Sillynano3_/)
 
+### links
+(sillynano.xyz)
